@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Clevermrfox
-- 👀 I’m interested in ... Technology, Bitches & Coke
+- 👀 I’m interested in ... Technology
 - 🌱 I’m currently learning ...all I can
 - 💞️ I’m looking to collaborate on ...anything
 - 📫 How to reach me ... theclevermrfox@gmail.com
